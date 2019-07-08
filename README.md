@@ -1,1 +1,1 @@
-# scoala-informala-homework
+You can find the homework here.
